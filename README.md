@@ -1,1 +1,1 @@
-# new idea projects #
+# New idea projects #
